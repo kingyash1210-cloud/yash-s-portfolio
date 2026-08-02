@@ -1,0 +1,1 @@
+Hi I'm Yash student of grade 11th science... i make a portfolio of mine as a project for boba drops... I love to make this and the experience is so gorgeous for mee.. thank you to give me this chance.. And i clearly claimed that i don't use any type of AI or template for making this... I DON'T USE ANY TYPE OF AI OR TEMPELATE>>>
